@@ -1,2 +1,2 @@
-# eid-mubarak-2023
+# Happy Eid 2023
 Eid Al-Fitr
